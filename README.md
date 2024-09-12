@@ -1,1 +1,1 @@
-# Strategic-Categorization-and-Analysis-of-Oil-and-Gas-M-As-for-Renewable-Transition
+# Strategic-Categorization-and-Analysis-of-Oil-and-Gas-Mergers-Acquisitions-for-Renewable-Transition
